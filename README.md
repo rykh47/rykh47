@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rykh47
 - 👀 I’m interested in: Coding , eating and Sleeping 
-- 🌱 I’m currently learning: degree in computer science
+- 🌱 I’m a holder of bachelor in computer science
 - 💞️ I’m looking to collaborate on: simple projects that i can help and develop my self
 - 📫 How to reach me: you can get me on eldhobabu58@gmail.com
 
